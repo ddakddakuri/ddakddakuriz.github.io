@@ -1,1 +1,0 @@
-# ddakddakuriz.github.io
